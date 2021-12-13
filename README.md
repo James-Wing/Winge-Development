@@ -1,1 +1,1 @@
-I'm Winge-Development (Little_Winge), this is the account I use for my commissions instead of my personal account. My Discord is Little_Winge#7022 and my email (for business) is WingeDevelopment@gmail.com.
+I'm Winge-Development (Little_Winge), this is the account I use for my commissions instead of my personal account. My Discord is Little_Winge#0613 and my email (for business) is WingeDevelopment@gmail.com.
